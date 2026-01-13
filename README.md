@@ -1,0 +1,2 @@
+# So-s-nh-thu-nh-x-ng-v-x-y-nh-m-y-v-t-li-u-x-y-d-ng-L-a-ch-n-n-o-t-i-u-logistics-
+Đối với doanh nghiệp trong ngành vật liệu xây dựng, quyết định thuê nhà xưởng hay xây dựng nhà máy riêng là một bài toán chiến lược, ảnh hưởng trực tiếp đến chi phí đầu tư, khả năng mở rộng và hiệu quả logistics kho vận. Mỗi phương án đều có ưu – nhược điểm riêng, tùy thuộc vào giai đoạn phát triển và mục tiêu dài hạn của doanh nghiệp.
